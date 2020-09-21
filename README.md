@@ -1,2 +1,6 @@
 # hello-world
-Repository 1 for thegoodsamiritan
+
+thebadsamiritan or the goodsamiritan?
+
+Growth first. 
+
